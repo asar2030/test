@@ -1,2 +1,0 @@
-# Asar Akhmetbekov
-==================
